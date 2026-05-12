@@ -1,4 +1,4 @@
-# 
+# instant nft sniper bot | stop-loss + trait-analysis offers the most advanced nft sniper bot, with stop-loss and trait-analysis. Ideal for professional NFT traders and collectors.
 
 
 
